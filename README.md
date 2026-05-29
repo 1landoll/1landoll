@@ -5,9 +5,7 @@ lazy readme uhm  .  <img width="20" height="20" alt="1000005003" src="https://gi
 
 
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color+style=ff69b4)
-
-
+i
 
 
 
