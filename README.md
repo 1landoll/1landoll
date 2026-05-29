@@ -5,7 +5,7 @@ lazy readme uhm  .  <img width="20" height="20" alt="1000005003" src="https://gi
 
 
 
-i
+![](https://komarev.com/ghpvc/?username=urgituser&label=_+++𝓢trawberries+++_&color=ff69b4) 
 
 
 
