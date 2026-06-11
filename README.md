@@ -1,29 +1,13 @@
 
 
 
-@PP
-
- ᶦⁿᵗ ᶠʳᵉᵉˡʸ ᵇᵘᵗ ʷᶦᵗʰ ᶜᵃᵘᵗᶦᵒⁿ
-
 
 
 ![](https://komarev.com/ghpvc/?username=urgituser&label=_+++𝓢tars+++_&style=plastic)  
 
+------
+ʸᵒᵘ'ᵛᵉ ᵍᵒᵗ ᵗʰᵃᵗ ˡᵒᵒᵏ ᶦⁿ ʸᵒᵘʳ ᵉʸᵉˢ. 
 
-<img width="726" height="401" alt="1000005192" src="https://github.com/user-attachments/assets/a5419b5f-9665-4c86-a866-bde7db9e99ac" />
+<img width="936" height="556" alt="1000005196" src="https://github.com/user-attachments/assets/a449d5e3-8843-4871-b282-d71e5cac02c3" />
 
-
-
-
-          
-@like stars in
-
- your eyes.
-
-
-
-
-
-
-
-
+-------
