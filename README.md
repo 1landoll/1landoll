@@ -5,7 +5,7 @@
 
 ![](https://komarev.com/ghpvc/?username=urgituser&label=_+++𝓢tars+++_&style=plastic)  
 ------
-ʸᵒᵘ'ᵛᵉ ᵍᵒᵗ ᵗʰᵃᵗ ˡᵒᵒᵏ ᶦⁿ ʸᵒᵘʳ ᵉʸᵉˢ. 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=AC2EF7&width=435&lines=no+friends;only+enemies)](https://git.io/typing-svg)
 
 <img width="936" height="556" alt="1000005196" src="https://github.com/user-attachments/assets/a449d5e3-8843-4871-b282-d71e5cac02c3" />
 
