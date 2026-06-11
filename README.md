@@ -1,7 +1,10 @@
 <img width="1035" height="235" alt="1000005008" src="https://github.com/user-attachments/assets/4e092e6b-1444-4402-990f-dcc0ef344024" />
 
 
-lazy readme uhm  .  <img width="20" height="20" alt="1000005003" src="https://github.com/user-attachments/assets/04e0b0ad-cf21-4a30-8345-7f4a4427d8ba" />
+****lazy readme uhm  .**** 
+
+ᵖˡˢ ᶦⁿᵗ ᶠʳᵉᵉˡʸ ᵇᵘᵗ ʷᶦᵗʰ ᶜᵃᵘᵗᶦᵒⁿ
+<img width="20" height="20" alt="1000005003" src="https://github.com/user-attachments/assets/04e0b0ad-cf21-4a30-8345-7f4a4427d8ba" />
 
 
 
@@ -28,7 +31,7 @@ lazy readme uhm  .  <img width="20" height="20" alt="1000005003" src="https://gi
 
 
 
- rmking ata book. <-- <img width="20" height="20" alt="1000005004" src="https://github.com/user-attachments/assets/1abed39e-a9b7-4d11-b735-37e0f74884ff" />
+ ***rmking ata book***<-- <img width="20" height="20" alt="1000005004" src="https://github.com/user-attachments/assets/1abed39e-a9b7-4d11-b735-37e0f74884ff" />
 
 <img width="1035" height="235" alt="1000005009" src="https://github.com/user-attachments/assets/6f24e0e9-918b-4e2c-aa4c-d956084b0555" />
 
