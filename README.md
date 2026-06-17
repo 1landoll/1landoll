@@ -8,7 +8,7 @@
 
 
 
-![](https://komarev.com/ghpvc/?username=urgituser&label=_+++ʷᶦⁿˢ+++_&style=plastic)  
+![](https://komarev.com/ghpvc/?username=urgituser&label=_+++ᶜʰᵃⁿᶜᵉˢᵒᶠᵒˢᶜᵃʳᵖᶦᵃˢᵗʳᶦʷᶦⁿⁿᶦⁿᵍʷᵈᶜ+++_&style=plastic)  
 ------
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Love+Light&size=40&pause=1000&color=5A53F7&width=435&lines=you+gotta+do+it+;like+a+winner+.)](https://git.io/typing-svg)
 <img width="736" height="245" alt="1000005332" src="https://github.com/user-attachments/assets/fd2cf366-4047-414b-a3ff-62d306e92705" />
