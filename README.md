@@ -12,6 +12,9 @@
 
 <img width="901" height="451" alt="1000005698" src="https://github.com/user-attachments/assets/16b988c1-f7f7-496b-99d2-be41be2f9713" />
 
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Love+light&pause=100&color=FFFFFF&multiline=true&width=435&lines=im+a+motherfcking+starboy!)](https://git.io/typing-svg)
+
 --------
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bemjm36t5rdmnsuuyjaic6peva&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=00ffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
@@ -23,3 +26,5 @@
 
 
 <img width="701" height="50" alt="1000005699" src="https://github.com/user-attachments/assets/7860e8ed-cf02-45f9-a3ad-7b2b9a0e40fa" />
+
+         
