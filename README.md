@@ -29,7 +29,14 @@
 ------
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bemjm36t5rdmnsuuyjaic6peva&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=00ffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
+**@BEAN THIS YOU???**
+<img width="116" height="104" alt="1000005697" src="https://github.com/user-attachments/assets/f10c30ca-1c57-4daa-a169-c9345d7a4678" />
+
+
+
+
 this readme is still a wip! 
 -----
 <img width="368" height="50" alt="1000005334" src="https://github.com/user-attachments/assets/a2c30c1b-3bf1-4ca5-aa7c-94080ec9f4a1" />
+
 
