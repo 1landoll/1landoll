@@ -5,7 +5,7 @@
 
 
 
-　　　![](https://komarev.com/ghpvc/?username=urgituser&label=_+++𝓚𝖎n𝑑𝙚re𝒈gs+++_&style=plastic)  
+　　　　　![](https://komarev.com/ghpvc/?username=urgituser&label=_+++𝓚𝖎n𝑑𝙚re𝒈gs+++_&style=plastic)  
 ------
 　　　　　　　　　[𝓢t𝖗𝘢w𝒑𝓪ge](https://dearconnermurphy.straw.page)
 
