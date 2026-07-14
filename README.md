@@ -7,7 +7,7 @@
 
 　　　![](https://komarev.com/ghpvc/?username=urgituser&label=_+++kindereggs+++_&style=plastic)  
 ------
-　　　　　　　[Straw](https://dearconnermurphy.straw.page)
+　　　　　　　　　[Straw](https://dearconnermurphy.straw.page)
 
 
 <img width="736" height="377" alt="1000000263" src="https://github.com/user-attachments/assets/46034f30-4a93-4b66-878f-acff619fd2df" />
