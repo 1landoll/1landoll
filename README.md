@@ -10,8 +10,8 @@
 　　　　　　　　　[𝓢t𝖗𝘢w𝒑𝓪ge](https://dearconnermurphy.straw.page)
 
 
-<img width="500" height="250" alt="1000000501" src="https://github.com/user-attachments/assets/ec4fd244-1202-494d-a96c-5b0de1210be3" />
 
+<img width="540" height="540" alt="1000000790" src="https://github.com/user-attachments/assets/a10ad5ae-55bf-44f1-8c2a-7a6eef9e58a6" />
 
 
 
