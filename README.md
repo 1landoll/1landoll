@@ -8,7 +8,7 @@
 　　　![](https://komarev.com/ghpvc/?username=urgituser&label=_+++𝓚𝖎n𝑑𝙚re𝒈gs+++_&style=plastic)  
 ------
 　　　　　　　[𝓢t𝖗𝘢w𝒑𝓪ge](https://dearconnermurphy.straw.page) 
-　　　　　　　　　　　　　　          　　　　　　　　　  　[𝓐t𝒂 𝑩𝙤ok](https://dolliot.atabook.org)             
+　　　　　　　　　　　　　　          　　　　　　　　　  　[𝓐t𝒂 𝑩𝙤ok](https://dolliot.atabook.org)      ♡___________       
 
 
 <img width="540" height="540" alt="1000000790" src="https://github.com/user-attachments/assets/a10ad5ae-55bf-44f1-8c2a-7a6eef9e58a6" />
